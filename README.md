@@ -1,3 +1,3 @@
 # Editing Practice
 
-This is a bunch of words
+wow i am tring to do the homework
